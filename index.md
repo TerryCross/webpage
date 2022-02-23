@@ -1,6 +1,6 @@
 ## Privacy Policy for App globenua
 
-We may also use the information you provided us to contact your from time to time to provide you with important information, required notices and marketing promotions.
+We may use the information you provided us to contact your from time to time to provide you with important information, required notices and marketing promotions.
 
 Automatically Collected Information 
 
